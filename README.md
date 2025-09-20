@@ -1,0 +1,1 @@
+# visi-komputer-TI-2A
